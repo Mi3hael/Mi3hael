@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mi3hael
-- 🌱 I’m currently learning Coding :D
-- 💞️ I’m looking to collaborate on Discord Devs
-- 📫 How to reach me My Discord Server. (Michael`s Server)
+- 🌱 Lead Developer of Link Utilities#9044
+- 💞️ Discord Owner, And Manager ( discord.gg/linkk) ( 3.3k )
+- 📫 You can leave now and stop stalking me fr.
 ...
 <!---
 Mi3hael/Mi3hael is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
